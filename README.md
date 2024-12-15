@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @mayanadesigns
+- 👋 Hi, I’m @mayanadesigns.com
 - 👀 I’m interested in fashion
 - 🌱 I’m currently learning about online clothing
 - 💞️ I’m looking to collaborate on ...
